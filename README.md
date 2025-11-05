@@ -1,1 +1,2 @@
 # La-fuerza-de-la-pintura-Parte-I
+Cuando uno necesita transformar uno o varios ambientes de la casa, la pintura es una de las soluciones más completas, y con un resultado de satisfacción garantizado. El cambio que provocan en un espacio es asombroso, con la ventaja, además, de que es amigable para nuestro bolsillo, ya que si no se desea contratar a un profesional para hacer el trabajo lo puede hacer uno mismo.
